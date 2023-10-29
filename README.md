@@ -1,6 +1,7 @@
 # madpract10_210120210005
 practical 10
-![WhatsApp Image 2023-10-29 at 18 12 52_a0e060af](https://github.com/Shabnam5394/madpract10_210120210005/assets/98177656/60474893-0009-4832-be1a-af702bb5b0ab)
+![WhatsApp Image 2023-10-29 at 20 20 15_f3615e18](https://github.com/Shabnam5394/madpract10_210120210005/assets/98177656/3e986e7c-6dab-4cc1-b28b-eded29c2637c)
+
 
 ![WhatsApp Image 2023-10-29 at 18 12 50_cf020409](https://github.com/Shabnam5394/madpract10_210120210005/assets/98177656/f1eddd79-1830-4faa-b06a-b8327f267b8e)
 
